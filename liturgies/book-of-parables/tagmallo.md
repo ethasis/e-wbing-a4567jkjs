@@ -38,7 +38,7 @@ When he reached the peak, he buried Zofina, and stacked atop her grave four ston
 
 And his inventor answered:
 
-"Why for do you weep? You have raised the peak of this mountain for your child, and this mountain stands truly high. It is so that toppling a mere capstone from the stele shall not defile the grave."
+"Why for do you weep? You have raised the peak of this mountain for your child, and this mountain stands higher than before. It is so that toppling a mere capstone from the stele shall not defile the grave."
 
 It is so that a prophet once said, "They will scrape uselessly at my works and be blinded by the rising sun."
 
