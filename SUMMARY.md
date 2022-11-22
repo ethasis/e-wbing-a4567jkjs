@@ -7,3 +7,4 @@
     * [Tagmallo](liturgies/book-of-parables/tagmallo.md)
   * [Praise for Our Kings](liturgies/praise-for-our-kings/README.md)
     * [Songs of Demarcation](liturgies/praise-for-our-kings/songs-of-demarcation.md)
+    * [Bride-Price](liturgies/praise-for-our-kings/bride-price.md)
